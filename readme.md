@@ -1,1 +1,1 @@
-kira is god
+kira is God
